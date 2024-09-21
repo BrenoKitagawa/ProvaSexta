@@ -1,0 +1,1 @@
+Breno Kitagawa Faculdade Senac maringá Curso de analise e desenvolvimento de sistemas aula de analise de projeto de sistemas, Prova realizada no dia 20/09/24 para a aula de analise de projeto de sistemas do professor rafael.
